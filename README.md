@@ -1,0 +1,1 @@
+# -r-nleri-renklerine-g-re-ay-ran-otomasyon
